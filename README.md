@@ -5,8 +5,8 @@
 
 <h1 align="center">Airy ᗢ !!˖˚⊹ ꣑ৎ‎ ᥫ᭡</h1>
 <p align="center">Spanish/English﹏⏤͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͞͞͞͞͞͞͞‧
-<br/>✰⊹ Pronouns He/Him ˎ-
-<br/>˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
+<br align="centre">✰⊹ Pronouns He/Him ˎ-
+<br align="centre">˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
 
 
 <!--
