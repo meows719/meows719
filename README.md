@@ -7,6 +7,7 @@
 <p align="center">🫐⊹܀Spanish/English
 <br align="centre">✰⊹ Pronouns He/Himˎ-
 <br align="centre">˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
+<img src="https://github.com/meows719/meows719/issues/2#issue-3044020410" width="300">
 
 
 <!--
