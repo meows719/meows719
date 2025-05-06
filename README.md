@@ -1,4 +1,13 @@
-## Hi there 👋
+<p align="center">
+  <img <img src="https://github.com/tuusuario/tuusuario/blob/main/3%20sin%20t%C3%ADtulo_20250303222354.png" width="300" alt="Shadow Milk Banner"/>
+
+</p>
+
+<h1 align="center">Airy ᗢ !!˖˚⊹ ꣑ৎ‎ ᥫ᭡</h1>
+<p align="center">Spanish/English﹏⏤͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͞͞͞͞͞͞͞‧
+<br/>✰⊹ Pronouns He/Him ˎ-
+<br/>˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
+
 
 <!--
 **meows719/meows719** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
