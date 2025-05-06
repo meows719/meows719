@@ -1,5 +1,5 @@
 <p align="center">
-  <img <img src="https://github.com/tuusuario/tuusuario/blob/main/3%20sin%20t%C3%ADtulo_20250303222354.png" width="300" alt="Shadow Milk Banner"/>
+![Image](https://github.com/user-attachments/assets/419e6f31-952f-474c-9905-60afaa652838)
 
 </p>
 
