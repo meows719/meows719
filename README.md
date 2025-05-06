@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/419e6f31-952f-474c-9905-60afaa652838.png" width="300" alt="Shadow Milk Banner"/>
+<img src="https://github.com/user-attachments/assets/419e6f31-952f-474c-9905-60afaa652838.png" width="300">
 
 </p>
 
