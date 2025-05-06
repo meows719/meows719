@@ -4,7 +4,7 @@
 </p>
 
 <h1 align="center">Airy ᗢ !!˖˚⊹ ꣑ৎ‎ ᥫ᭡</h1>
-<p align="center">Spanish/English﹏⏤͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͞͞͞͞͞͞͞‧
+<p align="center">🫐⊹܀Spanish/English﹏⏤͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͟͞͞͞͞͞͞͞‧
 <br align="centre">✰⊹ Pronouns He/Him ˎ-
 <br align="centre">˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
 
