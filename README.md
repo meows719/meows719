@@ -8,7 +8,7 @@
 <br align="centre">✰⊹ Pronouns He/Himˎ-
 <br align="centre">˖˚⊹ ꣑ৎ‎⊹₊ ᥫ᭡ ୧₊‿︵‧ ˚
   <p align="center">
-<img src="https://github.com/meows719/meows719/issues/2#issue-3044020410" width="300">
+<img src="https://github.com/user-attachments/assets/826b17af-e28f-4b52-bcec-d2b78a535308" width="300">
 
 
 <!--
